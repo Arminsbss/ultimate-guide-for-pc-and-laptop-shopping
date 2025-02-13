@@ -20,7 +20,7 @@ Welcome to **Build Your PC/Laptop & Buy (esabour)**! Whether you're a gamer, con
 ✅ **Tailored to Your Needs** – Whether budget-conscious or high-end 💰  
 ✅ **Performance Benchmarks & Real-World Testing** 🏆  
 ✅ **Enthusiastic & Friendly Guidance** 😊  
-![image](https://github.com/user-attachments/assets/4958faa1-b194-4ba0-b4d8-59725d057143)
+![image](https://github.com/user-attachments/assets/11057298-2472-4951-9556-5efe11e24ef0)
 
 ## 🚀 Get Started Now!
 
