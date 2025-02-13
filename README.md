@@ -1,6 +1,7 @@
 # 🚀 Build Your PC & Laptop - Expert Hardware Guidance 🖥️
 
 Welcome to **Build Your PC/Laptop & Buy (esabour)**! Whether you're a gamer, content creator, or professional, I provide **expert guidance on building, upgrading, and buying the perfect PC or laptop** tailored to your needs. 💡✨
+![image](https://github.com/user-attachments/assets/f8369125-f579-40c6-805d-2f991879fddb)
 
 ## 🎯 What I Offer
 
@@ -10,6 +11,7 @@ Welcome to **Build Your PC/Laptop & Buy (esabour)**! Whether you're a gamer, con
 🔹 **Troubleshooting & Upgrades** – Boost your system’s power and efficiency 🚀  
 🔹 **Cooling & Power Solutions** – Optimize airflow and stability ❄️🔌  
 🔹 **Peripherals & Monitors** – Enhance your setup with the best gear 🎧🖱️  
+![image](https://github.com/user-attachments/assets/6d3cc650-5204-45b7-8bd6-9387ce1019b6)
 
 ## 🔥 Why Choose Me?
 
